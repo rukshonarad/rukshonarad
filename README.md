@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rukshona.rad@gmail.com**
   
-- ⚡ Fun fact: I speak 4 language . I love baking, painting, crafting
+- ⚡ Fun fact: I speak 4 language. 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
